@@ -1,1 +1,1 @@
-Hi
+I'm Allison Ingram.  I'm from NJ.  I'm a second semester masters student in the Geography Department working with Dr. Henri Grissino-Mayer in the Laboratory of Tree Ring Science.  My research interests are dendrochronology and dendroclimatology.  I like running and working out.
